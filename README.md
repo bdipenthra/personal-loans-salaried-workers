@@ -72,4 +72,4 @@ This project investigates how personal loans affect the financial well-being, sp
 **B Dipenthra**  
 B.Com Corporate Secretaryship, CGPA 8.2 — Loyola College, Chennai  
 📧 bdipenthra@gmail.com  
-🔗 [linkedin.com/in/bdipenthra](https://linkedin.com/in/bdipenthra)
+🔗🔗 [linkedin.com/in/b-dipenthra-92145a285](https://linkedin.com/in/b-dipenthra-92145a285)
